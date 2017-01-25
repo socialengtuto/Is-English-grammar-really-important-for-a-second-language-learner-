@@ -1,0 +1,2 @@
+# Is-English-grammar-really-important-for-a-second-language-learner-
+The problem with spending all of your time on grammar exercises is that it takes away from time that could be spent learning to arrange and organize a piece of writing as a whole. A piece of writing can be grammatically perfect while at the same time being miserable to read because it lacks coherence, logic, and organization. There is so much more to writing effectively than sentence level issues like grammar, punctuation, and spelling.\
